@@ -7,6 +7,7 @@
 
 
 Day 1
+
 🥶 Cold Water After Meals Slows Digestion? Let’s Break the Ice.
 Imagine your stomach as a busy kitchen. 🍽️
 Chefs (aka digestive enzymes) are working at full speed, fire blazing, breaking down that biryani you just ate.
