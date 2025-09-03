@@ -210,5 +210,43 @@ Happy Retail Employees Day
 
 <img width="862" height="858" alt="Image" src="https://github.com/user-attachments/assets/02a1aeb3-ec56-4c3b-a7e5-098989b72fca" />
 
+
  Day 14
+
+ Fun Fact Friday,
+ "Fun fact to brighten your Friday ?? 
+ #FunFactFriday","#FunFactFriday #KnowledgeIsPower","Visual fact poster"
+ <img width="225" height="225" alt="Image" src="https://github.com/user-attachments/assets/6c0f3169-98a2-455b-aa33-bcfcff69ac5c" />
+
+ Day 15
+
+ Team Spotlight,
+ "Meet the amazing team behind the brand ??????????
+ #TeamSpotlight","#TeamSpotlight #MeetTheTeam","Group team portrait"
+![Image](https://github.com/user-attachments/assets/1310ab2e-b38f-4b83-b2a1-e53dda8d42af)
+
+Day 16
+
+Motivation Monday,
+"Stay motivated, 
+you got this! ?? 
+#MotivationMonday","#MotivationMonday #StayPositive","Inspirational photo design"
+![Image](https://github.com/user-attachments/assets/87b99a5e-bb2a-40bb-9dd5-e7edfec5c25b)
+
+Day 17
+
+Product Highlight,
+"Here痴 why this product stands out ??
+#ProductHighlight","#ProductHighlight #Innovation","Hero product visual"
+![Image](https://github.com/user-attachments/assets/e4c5e7ff-4150-41d4-abe4-859fe5ceb24d)
+
+Day 18
+
+Behind the Scenes,
+"Culture, creativity, and coffee ? 
+#BehindTheScenes","#BehindTheScenes #Teamwork","Work culture candid photo"
+![Image](https://github.com/user-attachments/assets/3e9fa6f0-2f24-4919-a450-3a3076895876)
+
+Day 19
+
 
