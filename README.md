@@ -4,6 +4,8 @@
 **Intern ID** : CT04DY910
 **Duration** : 1 Month
 **Mentor** : Neela Santosh Kumar
+
+
 Day 1
 🥶 Cold Water After Meals Slows Digestion? Let’s Break the Ice.
 Imagine your stomach as a busy kitchen. 🍽️
