@@ -104,3 +104,111 @@ Simple, effective and everyday routine - our range of protein and nutrition.
 #nutritiontips #everydaynutrition #supplementsthatwork #Protein #kids #adultnutrition #Medplus
 ![Image](https://github.com/user-attachments/assets/e22ab9ad-cdce-4124-9050-98cf76617e99)
 
+Day 8
+
+12 large-scale and advanced diagnostic hubs inclusive of Radiology and Pathology
+
+
+ 125+ centres across Hyderabad for easy access
+
+
+ Also serviceable in Chennai with 26+ sample collection centres
+
+
+ Up to 75% off on all lab tests and scans
+
+
+ Latest technology following quality mechanisms
+
+
+Qualified technicians and trained professionals
+
+
+ Quick turnaround time and digital report access
+
+
+ Safety protocols followed end-to-end
+
+
+We look forward to serving you with the care you deserve!
+
+
+ Find your nearest MedPlus Diagnostic Centre:
+
+
+ https://lnkd.in/gvR5hNrP
+
+#diagnosticshyderabad #diagnostics hashtag#medplusdiagnøstics
+ 
+hashtag#diagnosticimaging
+ 
+hashtag#samplecollectionservice
+ 
+hashtag#samplecollectionfromhome hashtag#scan hashtag#xraymachine hashtag#MRI hashtag#CTscan hashtag#diagnosis hashtag#checkup hashtag#offersforyou hashtag#discounts hashtag#ultrasoundscan
+![Image](https://github.com/user-attachments/assets/4563614e-86e8-4754-a896-2d9283b9d97e)
+
+Day 9
+
+Because your health deserves more than waiting for symptoms. 
+
+MedPlus Diagnostics helps you take charge before problems begin. Thoughtful, thorough, and affordable health checkups designed for real lives.
+
+From the young to the young-at-heart, we are here to make preventive care easy, accessible, and reassuring. Choose health without hesitation. Choose MedPlus Diagnostics.
+
+hashtag#medplusdiagnostics hashtag#diagnostics hashtag#packages hashtag#treatment hashtag#Scanner hashtag#issues hashtag#health hashtag#mriscan hashtag#CTscan hashtag#womenshealth hashtag#MenHealthMatters hashtag#oldage hashtag#consultation hashtag#allages hashtag#Medplus
+![Image](https://github.com/user-attachments/assets/cd0777dc-b5b7-4c34-9c25-08bdc0147669)
+
+Day 10
+
+Trusted. Accurate. Accessible.
+
+With 12 diagnostic centres and over 125+ centres across Hyderabad, and expanded presence in Chennai with 26 collection centres and mini diagnostic units, MedPlus Diagnostics brings quality testing closer to you.
+
+Offering comprehensive radiology and pathology services with reliable results and expert care.
+
+🔬 Your health, our priority.
+📍 Book tests online at https://lnkd.in/gZvKg_zJ walk into your nearest centre.
+
+hashtag#diagnostics hashtag#healthcare hashtag#samplecollection hashtag#tests hashtag#treatment hashtag#quality hashtag#diagnosticcentrehyderabad hashtag#diagnosticcentrechennai hashtag#AffordableDiagnostics hashtag#Medplus
+![Image](https://github.com/user-attachments/assets/6e1bc8da-4b7f-4815-8c4a-864980dfd5de)
+
+Day 11
+
+“Will cracking your knuckles give you arthritis?”
+
+Not true! There’s no scientific evidence linking habitual knuckle cracking to arthritis. That satisfying pop is just gas bubbles in the joint fluid collapsing—not damage to your bones or cartilage.
+
+However, frequent or aggressive knuckle cracking can sometimes cause temporary swelling, reduced grip strength, or irritation in nearby soft tissues. If you feel pain or notice changes in movement, it’s always a good idea to check with a healthcare professional.
+
+P.S: You can crack your knuckles without worrying about arthritis, but it’s smart to do it gently and not make it a compulsive habit to keep your hands feeling their best.
+
+hashtag#knuckles hashtag#crackingknuckles hashtag#fingercracking hashtag#mythology hashtag#facts hashtag#mythsbusted hashtag#scientific hashtag#strengthtraining hashtag#grip hashtag#arthritisrelief hashtag#Medplus
+![Image](https://github.com/user-attachments/assets/f1813d27-6a20-40d2-88ff-f4d9ce61f763)
+
+Day 12
+
+Pull one gray, get ten more!
+
+Each hair follicle produces just one strand of hair and it works independently. So when you pluck out a gray hair, you're only removing that specific strand. It doesn't trigger a chain reaction or cause nearby hairs to turn gray. Those other follicles have their own schedule, largely driven by genetics.
+
+This myth likely came from people noticing more grays around the same time they started plucking. But the truth is, those new grays would’ve appeared anyway, plucking or not.
+
+So, what does that really mean for your hair?
+
+What can happen with frequent plucking, though, is damage to the hair follicle. Constant pulling can weaken it, and over time, it might stop growing hair altogether. Instead of waging war with tweezers, it’s smarter to explore safer options like coloring, root concealers, or even embracing your natural silver strands.
+
+Gray hair isn’t something to fear. It reflects your journey, character, and confidence. You can’t stop the clock, but you can absolutely decide how you want to wear the years that show.
+
+hashtag#pluckinggreyhairs hashtag#GreyHairSolutions hashtag#pluckinghair hashtag#removinghair hashtag#haircareroutine hashtag#genetics hashtag#myths hashtag#facts hashtag#medplus
+![Image](https://github.com/user-attachments/assets/6c1e37d6-7a5b-4461-9387-dfa8ee3014db)
+
+Day 13
+
+Happy Retail Employees Day
+
+#RetailEmployeesDay #RetailEmployeesDay2024 #EmployeesDay #Retail #RetailHeroes #SupportRetailWorkers #RetailFamily #RetailLife #RetailWorkers #Medplus
+
+<img width="862" height="858" alt="Image" src="https://github.com/user-attachments/assets/02a1aeb3-ec56-4c3b-a7e5-098989b72fca" />
+
+ Day 14
+
